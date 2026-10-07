@@ -1,4 +1,4 @@
-![image alt](https://github.com/iamwhoissasmuu/iamwhoissasmuu/blob/713b52df34d3c3afa90ae1f5c252b3e81d413ee7/Death%20Note.jpg) 
+![image alt](https://github.com/iamwhoissasmuu/iamwhoissasmuu/blob/e3ec5a1d2dbdc91f6a2d146025b097df924f0cae/download.jpg) 
 
 #  ¡Hola! Soy Samuel
 
