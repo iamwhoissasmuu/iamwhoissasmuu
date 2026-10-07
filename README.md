@@ -1,3 +1,5 @@
+![image alt](https://github.com/iamwhoissasmuu/iamwhoissasmuu/blob/713b52df34d3c3afa90ae1f5c252b3e81d413ee7/Death%20Note.jpg) 
+
 #  ¡Hola! Soy Samuel
 
 ###  Developer ·  Creative ·  Always learning
