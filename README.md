@@ -1,5 +1,3 @@
-![image alt](https://github.com/iamwhoissasmuu/iamwhoissasmuu/blob/e3ec5a1d2dbdc91f6a2d146025b097df924f0cae/download.jpg) 
-
 #  ¡Hola! Soy Samuel
 
 ###  Developer ·  Creative ·  Always learning
