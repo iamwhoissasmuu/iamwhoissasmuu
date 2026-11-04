@@ -90,7 +90,7 @@ I'm always open to learning opportunities, collaborative projects, and connectin
 </p>
 
 Email: samuel.gonzalez2026@mottach.superate.org
-LinkedIn: Connect with me
+LinkedIn: https://www.linkedin.com/in/samuel-gonz%C3%A1lez-5b473b415/
 <p align="center">
 <em>"One more step." </em>
 </p>
