@@ -15,7 +15,7 @@ I'm a motivated and curious learner who enjoys exploring how things work, solvin
  Value collaboration, clear communication, and creative thinking.
  Achieved first place in a team chess tournament.
  Committed to continuous personal and professional growth.
-<h2 align="left">🛠️ Skills & Tools</h2>
+<h2 align="left"> Skills & Tools</h2>
 
 <table>
 <tr>
